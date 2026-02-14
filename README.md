@@ -1,0 +1,1 @@
+# LogicConcepts.2022.1
